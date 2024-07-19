@@ -1,1 +1,0 @@
-# simga.github.io
